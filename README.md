@@ -1,1 +1,0 @@
-# sc-code-it.github.io
